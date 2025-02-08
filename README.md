@@ -1,1 +1,0 @@
-# lord.github.io
